@@ -1,4 +1,4 @@
-# IN Junior
+# IN Junior 🐺
 
 **Empresa Júnior de Computação da Universidade Federal Fluminense (UFF)**
 
