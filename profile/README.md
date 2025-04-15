@@ -50,6 +50,14 @@ Já colaboramos com diversas instituições e empresas, incluindo:
 
 ---
 
+## 💬 Solicite um Orçamento
+
+Tem uma ideia ou projeto em mente? Entre em contato com a gente para receber um orçamento personalizado!
+
+- Preencha o formulário: [injunior.com.br/#contato](https://injunior.com.br/#contato)  
+- Ou envie um e-mail para: [contato@injunior.com.br](mailto:contato@injunior.com.br)
+---
+
 ## 📍 Localização
 
 UFF - Campus Praia Vermelha  
